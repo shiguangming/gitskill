@@ -3,4 +3,5 @@ for learnning git
 how about zhaichenxi
 lost contact !
 still have prospect !
-does she also ?
+i wannt to know whether she also ?
+I think we will...
