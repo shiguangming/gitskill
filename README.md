@@ -5,5 +5,6 @@ lost contact !
 still have prospect !
 i wannt to know whether she also ?
 I think we will...
+but she get an iphone 6,
 and i use android
 i use one pluse hoho
